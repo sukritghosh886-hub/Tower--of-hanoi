@@ -1,1 +1,0 @@
-sukritghosh@github.com
